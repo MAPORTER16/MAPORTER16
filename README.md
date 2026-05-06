@@ -1,4 +1,4 @@
-Hi! My name is Matthew Porter! I would like to share somethings about me. I like to play Dungeons and Dragons with my friends and family. The reason i love doing this is because I love
+Hi! My name is Matthew Porter! I would like to share somethings about me. I like to play Dungeons and Dragons with my friends and family. The reason I love doing this is because I love
 the art of story telling. I love creating cool worlds and characters my friends can exlpore and experince a fun world where they cna form their own story. I love the collaborative story
 telling. It's fun and helps me escape reality when I need to.
 
