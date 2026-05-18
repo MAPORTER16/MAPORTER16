@@ -9,3 +9,5 @@ I love to paint miniatures as well. I find it theraputic and stress relieving. I
 
 I love to exercise. It helps you in so many ways. Your cognitive function, blood flow, stress, so many things! I'm a firm believer you learn better if you exercise regualrly. 
 
+
+linked in(https://www.linkedin.com/in/matthew-porter-53a84223b/)
