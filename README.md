@@ -9,6 +9,3 @@ I love to paint miniatures as well. I find it theraputic and stress relieving. I
 
 I love to exercise. It helps you in so many ways. Your cognitive function, blood flow, stress, so many things! I'm a firm believer you learn better if you exercise regualrly. 
 
-I have been married for 3 years now to my beautiful wife Janessa. We met working at a resort together in Bear Lake. I was working maintenance and she was working in the kitchen. They didn't 
-have a dish washer so I was volunteered to help once I was done helping guests. We talked between when she brought me dishes to was and one thing led to another and here we are.
-I love her so much, I would be lost wothout here and I wouldn't be who I am today without her. 
